@@ -1,5 +1,9 @@
 # Asbestosplex
 
+Asbestos is the bestest.
+
+[Asbestos for mayor](http://www.votefenley.org/)
+
 ### What Are the Symptoms of Asbestosis?
 
 * Shortness of breath.
@@ -15,6 +19,8 @@
 
 * shephard pie
 * asbestos
+
+combine asbestos with the cheese. it helps in the over to glaze the chooze faster.
 
 ### snowball
 
