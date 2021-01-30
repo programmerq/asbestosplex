@@ -31,3 +31,6 @@ combine asbestos with the cheese. it helps in the over to glaze the chooze faste
 
 Put stic kin apple. dip in carmel. dip in asbpestos
 
+##
+
+![asbestos](i-took-down-asbestos-removal-memes.jpg)
